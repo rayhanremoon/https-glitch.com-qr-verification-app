@@ -1,0 +1,1 @@
+# https-glitch.com-qr-verification-app
